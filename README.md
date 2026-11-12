@@ -217,4 +217,4 @@ East India Company is available as a full free version with all features and upd
 Take your adventure to the next level—**download East India Company today and build your trading empire!**
 
 ---
-**Last updated:** 2026-11-12 17:59:28 UTC
+**Last updated:** 2026-11-12 23:30:08 UTC
